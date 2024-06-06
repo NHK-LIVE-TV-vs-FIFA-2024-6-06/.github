@@ -2,6 +2,10 @@
 
 サッカー日本代表VSミャンマー代表丨放送予定一覧！テレビ・ネット中継・ライブ配信／2026年W杯アジア2次予選
 
+<strong> 🔴生中継▶ <a href="https://onlinestreamshd.com/japan-vs-myanmar/" rel="nofollow"> サッカー日本代表 vs ミャンマー代表ライブ放送 </a> </strong>
+
+<strong> 🔴生中継▶ <a href="https://onlinestreamshd.com/japan-vs-myanmar/" rel="nofollow"> サッカー日本代表 vs ミャンマー代表ライブ放送 </a> </strong>
+
 サッカー日本代表・SAMURAI BLUEは6月6日、FIFAワールドカップ26アジア2次予選兼AFCアジアカップサウジアラビア2027予選でミャンマー代表と敵地で対戦する。
 
 日本はすでにW杯予選最終予選進出が決定。ミャンマー戦は消化試合となるが、最終予選に向けコンビネーションの向上や新戦力の台頭などチーム強化を目指す。ここではミャンマー戦の放送予定を紹介する
